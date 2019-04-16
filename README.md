@@ -10,3 +10,6 @@ OH MY GOD. It's gotta out my mind, i'm very surprised and despiteful. I don't kn
 7 days on a week my sleep time so bad, JUST FOR TUNING THE DATA AND METHOD WITH USELESS ACCURACY AT ALL
 
 DEPRESSED MODE ON :(
+
+#FINAL SUBMIT SCORE I USE THE 21TH SUBMISSION AND FAILED TO PAST THE QUALIFYING
+#KAGGLE
